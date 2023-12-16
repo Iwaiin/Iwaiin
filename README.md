@@ -1,6 +1,6 @@
 # ¡Hola! Soy Iván Enciso Hernández 👋
 
-## Ingeniero de Telecomunicaciones con Especialización en Sistemas Audiovisuales
+## Estuidiante de Ingeniera en Telecomunicaciones con Especialización en Sistemas Audiovisuales
 
 🎓 Universidad Politécnica de Cataluña
 
